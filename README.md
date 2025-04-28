@@ -1,1 +1,1 @@
-[Taran Singh Resume](https://github.com/user-attachments/files/19042687/White.Simple.Student.CV.Resume.pdf)
+[Taran CV.docx](https://github.com/user-attachments/files/19941472/Taran.CV.docx)
